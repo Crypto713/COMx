@@ -1,4 +1,4 @@
-# COMx [Signum]
+# Signum:COMx
 
 Description: COMx is about "Fun & Entertaining Communication". The Primary COMlink for COMx is Twitter @Crypto713X . COMx <==> DESgeo <==> BRSTx
 Decimals: 8
