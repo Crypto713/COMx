@@ -17,7 +17,9 @@ Updates:
 12.04.2022
 
 Twitter @Crypto713X Active (Extremely Active).
+
 Staying true to the COMx Description, "Fun & Entertaining Communication".
+
 Current Topics: Privacy, Inter Blockchain Communication (IBC), Multiverse, NFTs, and more
 
 ---
